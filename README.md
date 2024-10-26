@@ -1,6 +1,7 @@
-## ︶⊹︶︶୨୧︶︶⊹︶
+**︶⊹︶︶୨୧︶︶⊹︶**
 
-# Pronouns : she/he/they
+**Pronouns :** she/he/they
+**Interests :** technology, fashion, video games, literature ..
 
 <!--
 **titouanwisser/titouanwisser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
