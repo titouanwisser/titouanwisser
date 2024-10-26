@@ -1,6 +1,7 @@
 **︶⊹︶︶୨୧︶︶⊹︶**
 
 **Pronouns :** she/he/they
+
 **Interests :** technology, fashion, video games, literature ..
 
 <!--
